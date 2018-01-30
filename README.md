@@ -1,6 +1,4 @@
-# Welcome to RAJ.I.T  
-
-I don't have much to say.
-
-Stay tuned for updates
-2018
+# Welcome to RAJ.I.T  business solutions
+Take over your company
+Dissolve your busniness
+Use the credit to boost rival company
