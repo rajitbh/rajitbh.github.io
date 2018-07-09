@@ -1,2 +1,1 @@
-#coming soon
-2018
+# rajit.github.io
